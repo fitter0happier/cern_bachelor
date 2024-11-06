@@ -1,1 +1,0 @@
-Stuff for bachelor thesis 
